@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nhung Nguyen
+- 👋 Hi, I’m Nhung Nguyen - IT Recruiter
 - 👀 I’m interested in IT Software Candidates
 - 🌱 I’m currently working at Lifesup Technology
 - 📫 How to reach me nhung.hong@lifesup.com.vn
